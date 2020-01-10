@@ -1,0 +1,1 @@
+# woo-propper-seo-urls
